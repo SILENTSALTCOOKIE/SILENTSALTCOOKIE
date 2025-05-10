@@ -1,7 +1,7 @@
 <p align="center">
 " hating you is my liberty ; my destiny . "
 <p align="center">
-<img src="https://i.postimg.cc/28DCpm9t/whitesalt.webp&=&format=webp&quality=lossless&width=1752&height=1238"/>
+<img src="https://i.postimg.cc/J0HsGGFy/silent.webp&=&format=webp&quality=lossless&width=1752&height=1238"/>
 </p>
 
 <p align="center"
