@@ -7,3 +7,11 @@
 <p align="center"
 
 ![](https://komarev.com/ghpvc/?username=silentsaltcookie&color=8c5de8&label=u+love+me+;-;)
+
+<p align="center"
+
+oh my god my wife actually is the best shes FEEDING ME so much 
+
+https://github.com/user-attachments/assets/b3c646c5-3912-45a2-9ff6-4a63eff3a893
+
+
